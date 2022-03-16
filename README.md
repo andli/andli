@@ -1,4 +1,4 @@
-### Hi there 🌃
+### 🌃🦉 Hello fellow night owl
 
 I love developing software as a hobby. My day job is in product management, so evenings is where my coding will happen...
 
